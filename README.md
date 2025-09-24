@@ -1,2 +1,2 @@
 # Interfaz-2
-Comand
+Yerson Pocoaca Castillo 
